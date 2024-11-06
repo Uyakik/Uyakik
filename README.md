@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Uyakik
-- 👀 I’m interested in Fnf
+- 👀 I’m interested in 
 - 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
